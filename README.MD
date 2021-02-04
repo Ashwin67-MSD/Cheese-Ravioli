@@ -1,0 +1,1 @@
+Cheese Ravioli are a type of pasta comprising a filling enveloped in thin pasta dough. Usually served in broth or with a sauce, they originated as a traditional food in Italian cuisine. Ravioli are commonly square, though other forms are also used, including circular and semi-circular (mezzelune).
